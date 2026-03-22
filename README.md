@@ -8,3 +8,5 @@
 > i have boundaries, please be a decent human being with your behavior and actions.
 >
 > though feel free to interact, as long if you dont act weird towards me
+>
+> i apologize if i dont respond to your whispers, i respond if i feel like it. ^D
