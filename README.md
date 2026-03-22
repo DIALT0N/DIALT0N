@@ -1,7 +1,7 @@
 ![spamton-deltarune](https://github.com/user-attachments/assets/54ca1a28-fb36-4a93-905f-6d8135b10c8b)
 > spamton fictionkin.
 > 
-> you can C+H only if my name is stated.
+> you can C+H only if its stated in my name.
 > 
 > i dont talk unless im with close friends, so dont get offended if i didnt say anything back to you.
 > 
@@ -10,3 +10,5 @@
 > though feel free to interact, as long if you dont act weird towards me
 >
 > i apologize if i dont respond to your whispers, i reply if i feel like it. ^D nothing personal!
+>
+> sometimes i have DNIUF, BGWI, etc. in my name, if you dont know any these, click [here](https://interactionstatus.carrd.co/#status). if you even care.
