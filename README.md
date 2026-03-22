@@ -11,4 +11,4 @@
 >
 > i apologize if i dont respond to your whispers, i reply if i feel like it. ^D nothing personal!
 >
-> sometimes i have DNIUF, BGWI, etc. in my name, if you dont know any these, click [here](https://interactionstatus.carrd.co/#status) if you even care.
+> sometimes i have DNIUF, BGWI, etc. in my names if you dont know any these, click [here](https://interactionstatus.carrd.co/#status) for more.
