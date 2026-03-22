@@ -7,4 +7,4 @@
 > 
 > i have boundaries, please be a decent human being with your behavior and actions.
 >
-> though feel free to interact, as long if you dont be weird towards me
+> though feel free to interact, as long if you dont act weird towards me
