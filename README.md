@@ -6,3 +6,5 @@
 > i dont talk unless im with close friends, so dont get offended if i didnt say anything back to you.
 > 
 > i have boundaries, please be a decent human being with your behavior and actions.
+>
+> though feel free to interact, as long if you dont be weird towards me
