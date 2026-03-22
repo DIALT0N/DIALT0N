@@ -9,4 +9,4 @@
 >
 > though feel free to interact, as long if you dont act weird towards me
 >
-> i apologize if i dont respond to your whispers, i respond if i feel like it. ^D
+> i apologize if i dont respond to your whispers, i reply if i feel like it. ^D nothing personal!
