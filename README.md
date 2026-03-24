@@ -11,4 +11,4 @@
 >
 > i apologize if i dont respond to your whispers, i reply if i feel like it. ^D nothing personal!
 >
-> sometimes i have interactions meanings in my names, click [here](https://interactionstatus.carrd.co/#status) to see. if you even care
+> dont roleplay with me please.
