@@ -12,3 +12,5 @@
 > i apologize if i dont respond to your whispers, i reply if i feel like it. ^D nothing personal!
 >
 > dont roleplay with me please.
+>
+> ships do not interact unless partner, or VERY close friends. nothing flirty.
