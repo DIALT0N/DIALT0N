@@ -28,6 +28,12 @@
 >
 > #THOSE battenna/miketenna shippers. most from experience are disgustingly weird.
 >
+> forsaken and its fans. self explanatory. you guys ARE supporting the creators even if you say you dont.
+>
+>
+> sexualizing minors or minors in relationships, fictional or not.
+>
+>
 > just dont be problematic, a freak, and we're cool.
  
 </details>
@@ -51,6 +57,23 @@
 > dolly's factory
 >
 > and more i possibly forgot, mostly hyperfixated on deltarune.
+</details>
+
+
+<details>
+<summary>iwcaution</summary>
+  
+> deltarune fandom itself, cant believe i had to say this but you guys are freaks.
+>
+> 
+> dandys world fandom
+>
+>
+> roleplaying. i dont do that.
+>
+> 
+> ships. (unless VERY close friends or partner.)
+ 
 </details>
 
 > updated : 4/7/2026.
