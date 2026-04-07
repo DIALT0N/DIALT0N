@@ -1,4 +1,4 @@
-![spamton-deltarune](https://github.com/user-attachments/assets/54ca1a28-fb36-4a93-905f-6d8135b10c8b)
+> ![spamton-deltarune](https://github.com/user-attachments/assets/54ca1a28-fb36-4a93-905f-6d8135b10c8b)
 <details>
   <summary>about me!</summary>
   
@@ -66,7 +66,7 @@
 > dandys world fandom
 >
 >
-> roleplaying. i dont do that.
+> roleplaying.
 >
 > 
 > ships. (unless VERY close friends or partner.)
@@ -91,3 +91,6 @@
 </details>
 
 > updated : 4/7/2026.
+>
+> ![pink-addison-deltarune](https://github.com/user-attachments/assets/d66ebc0b-b93d-49e5-8850-296c5d9e93c4)
+
