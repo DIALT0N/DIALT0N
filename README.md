@@ -2,19 +2,16 @@
 <details>
   <summary>about me!</summary>
   
-> i am a spamton fictionkin, i do not mind tenna kins but please dont flirt with me, lmao,
+> i am a spamton fictionkin, i do not mind tenna kins but please dont flirt with me,
 > im taken by my BEAUTIFUL HANDSOME CUTE defernull spamton.
 >
 > you can tell what my names are, but i prefer frosty more than 'dialton' though i wouldnt care if you call me it. nicknames are fine, nothing inappropriate please.
 >
-> usually nonverbal + selective mute, i dont talk much and i like being quiet. dont force me to talk unless i feel like it!
->
-> will also ignore whispers on 'purpose', sorry. im scared to reply and ill reply if i feel like it..
+> i go by they/them pronouns. im also 17.
 >
 > ill ignore personal questions!!! you dont gotta know anymore about me.
 >
-> please be gentle with your interacting, i get overwhelmed easily. i WILL run away or leave.
-
+> 
 </details>
 
 <details>
@@ -74,6 +71,23 @@
 > 
 > ships. (unless VERY close friends or partner.)
  
+</details>
+
+<details>
+  <summary>ponytown info</summary>
+
+> mostly nonverbal and selective mute, i talk if i want to. so dont force me.
+>
+> usually with a friend or with my partner. dont approach me if im with em.
+>
+> C+H is allowed, yes, if alone. though please do if its stated in my name.
+>
+> i hide freely, though if i have a genuine reason, dont get mad. probably because of your behavior/actions.
+>
+> will ignore whispers on 'purpose', sorry. im scared to reply and ill reply if i feel like it..
+>
+> anyone can interact, but please be gentle with interacting. i get overwhelmed easily, so i might run away or leave.
+
 </details>
 
 > updated : 4/7/2026.
