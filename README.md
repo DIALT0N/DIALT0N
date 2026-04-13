@@ -34,6 +34,8 @@
 >
 >
 > just dont be problematic, a freak, and we're cool.
+
+SUPPORT REN/NOLONGERNULL. PEOPLE WHO DEFEND ZEAL OR PRESSURE IN GENERAL ROT IN HELL.
  
 </details>
 
