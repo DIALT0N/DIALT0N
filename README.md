@@ -30,6 +30,8 @@
 >
 > sexualizing minors or minors in relationships, fictional or not.
 >
+> if you support/defend Urbanshade/Zeal, Zerum, Any individual apart of the Pressure team.
+>
 >
 > just dont be problematic, a freak, and we're cool.
  
