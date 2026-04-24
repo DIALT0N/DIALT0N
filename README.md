@@ -57,6 +57,8 @@ SUPPORT REN/NOLONGERNULL. PEOPLE WHO DEFEND ZEAL OR PRESSURE IN GENERAL ROT IN H
 >
 > dolly's factory
 >
+> collinlock16, A ReGect, just minecraft args in general.
+>
 > and more i possibly forgot, mostly hyperfixated on deltarune.
 </details>
 
@@ -73,7 +75,7 @@ SUPPORT REN/NOLONGERNULL. PEOPLE WHO DEFEND ZEAL OR PRESSURE IN GENERAL ROT IN H
 > roleplaying.
 >
 > 
-> ships. (unless VERY close friends or partner.)
+> ships. (unless VERY close friends or partner. platonic ships are fine.)
  
 </details>
 
@@ -94,7 +96,7 @@ SUPPORT REN/NOLONGERNULL. PEOPLE WHO DEFEND ZEAL OR PRESSURE IN GENERAL ROT IN H
 
 </details>
 
-> updated : 4/13/26.
+> updated : 4/24/26.
 >
 > ![pink-addison-deltarune](https://github.com/user-attachments/assets/d66ebc0b-b93d-49e5-8850-296c5d9e93c4)
 
