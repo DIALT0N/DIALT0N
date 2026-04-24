@@ -57,7 +57,7 @@ SUPPORT REN/NOLONGERNULL. PEOPLE WHO DEFEND ZEAL OR PRESSURE IN GENERAL ROT IN H
 >
 > dolly's factory
 >
-> collinlock16, A ReGect, just minecraft args in general.
+> collinlock16, ReGect, just minecraft args in general.
 >
 > and more i possibly forgot, mostly hyperfixated on deltarune.
 </details>
