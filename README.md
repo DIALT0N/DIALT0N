@@ -9,5 +9,3 @@ my ponies are simple and boring. if you got a problem with that ill just hide yo
 i may ignore whispers sorry.
 
 i dont do ships.
-
-im 17 dont be weird plez ok thank
