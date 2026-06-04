@@ -6,4 +6,8 @@ i dont speak. im completely nonverbal all the time, so dont force me to talk, i 
 
 my ponies are simple and boring. if you got a problem with that ill just hide you.
 
+i may ignore whispers sorry.
+
+i dont do ships.
+
 im 17 dont be weird plez ok thank
