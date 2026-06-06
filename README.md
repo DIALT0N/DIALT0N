@@ -2,7 +2,7 @@ remaking this.
 
 short info:
 
-i dont speak. im completely nonverbal all the time, so dont force me to talk, i can talk if i want to or not.
+i dont speak. im completely nonverbal all the time, so dont force me to talk, i can talk if i feel like it.
 
 my ponies are simple and boring. if you got a problem with that ill just hide you.
 
