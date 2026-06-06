@@ -12,4 +12,6 @@ i dont do ships.
 
 c+h encouraged. 
 
+i dont accept friend rqs.
+
 forsaken, pressure, dandys world, any roblox fandom DNI.
