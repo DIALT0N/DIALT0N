@@ -10,4 +10,6 @@ i may ignore whispers sorry.
 
 i dont do ships.
 
+c+h encouraged. 
+
 forsaken, pressure, dandys world, any roblox fandom DNI.
