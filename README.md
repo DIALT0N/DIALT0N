@@ -9,3 +9,5 @@ my ponies are simple and boring. if you got a problem with that ill just hide yo
 i may ignore whispers sorry.
 
 i dont do ships.
+
+forsaken, pressure, dandys world, any roblox fandom DNI.
