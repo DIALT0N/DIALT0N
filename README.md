@@ -10,8 +10,10 @@ i may ignore whispers sorry.
 
 i dont do ships.
 
-c+h encouraged. 
+c+h allowed if stated otherwise. 
 
 i dont accept friend rqs.
 
 forsaken, pressure, dandys world, any roblox fandom DNI.
+
+im usually afk/offtab, i have a busy life.
