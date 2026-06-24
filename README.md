@@ -8,7 +8,7 @@ my ponies are simple and boring. if you got a problem with that ill just hide yo
 
 i may ignore whispers sorry.
 
-i dont do ships. partner & close friends only.
+i dont do ships. partner & CLOSEST friends only.
 
 c+h allowed if stated otherwise. 
 
