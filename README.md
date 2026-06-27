@@ -17,3 +17,18 @@ i dont accept friend rqs.
 forsaken, pressure, dandys world, any roblox fandom DNI.
 
 im usually afk/offtab, i have a busy life.
+
+
+<details>
+  <summary> meanings</summary>
+  
+  nv = nonverbal
+
+  sv = semiverbal
+
+  sm = selective mute
+
+  iayor = interact at your own risk
+
+  tc = touch comfort, when c+h is stated.
+</details>
