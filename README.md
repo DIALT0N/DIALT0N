@@ -12,7 +12,8 @@ i dont do ships. partner & CLOSEST friends only.
 
 c+h allowed if stated otherwise. 
 
-i dont accept friend rqs.
+i accept friend rqs sometimes.
+
 
 forsaken, pressure, dandys world, any roblox fandom DNI.
 
