@@ -1,4 +1,4 @@
-focused on dsmp mostly, if you're uncomfortable please hide me. harassing me will just lead you to getting hidden. dont be immature about it.
+focused on dsmp mostly. if you're uncomfortable with that, please hide me. harassing me will just lead you to getting hidden. dont be immature about it.
 
 i dont speak. im completely nonverbal all the time, so dont force me to talk, i can talk if i feel like it.
 
